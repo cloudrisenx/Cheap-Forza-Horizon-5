@@ -16,3 +16,6 @@ https://www.tiktok.com/@techkr_risen
 
 Steam :
 https://steamcommunity.com/id/risen-x
+
+Facebook :
+https://www.facebook.com/risen.838287
